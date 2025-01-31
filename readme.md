@@ -1,0 +1,1 @@
+bu repoyu geliştirmeye başlamak için tilkiyi bekliyorum
